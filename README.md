@@ -48,7 +48,7 @@ In a world dominated by speculative chaos, Herpes Labs is here to spread somethi
 - 👀 I’m interested in revolutionizing the crypto market with a focus on community, connection, and positivity.
 - 🌱 I’m currently learning about decentralized finance (DeFi) innovations and how to build a supportive crypto ecosystem.
 - 💞️ I’m looking to collaborate on projects that promote creativity and inclusivity in the crypto space.
-- 📫 How to reach me: You can connect with me on [Twitter](https://x.com/HERPESKRC) or join our community on [Discord](https://discord.gg/herpeslabs).
+- 📫 How to reach me: You can connect with me on [Twitter](https://x.com/HERPESKRC) or join our community on [Discord](https://discord.gg/BXVtzvXWcP).
 - 😄 Pronouns: **he/him** or **they/them**.
 - ⚡ Fun fact: Our lab rats are passionate about KASPA and often help us brainstorm new ideas for the HERPES token!
 
